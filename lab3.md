@@ -10,3 +10,4 @@ I'm trying to tell myself I can | I'm going to make it | I keep trying and makin
 
 [growth mindset](https://www.psychologytoday.com/us/blog/click-here-happiness/201904/15-ways-build-growth-mindset)
  > no pain no gain
+ 
